@@ -1,7 +1,7 @@
 * (title): Mortimer Hawkins Strain Spotlight: Pain Management
-* (summary): Pain Management
+* (summary): Suffering from chronic pain and considering medical marijuana for pain management? Here are the top strains to help relieve your pain.
 * (meta tags): mortimer hawkins pain management
-* (picture url): https://drive.google.com/drive/folders/0B5oCL51bmdd9cUdSNER2M3Jvb1E
+* (picture url): https://storage.googleapis.com/the-apothecary-shoppe-public-assets/blog-posts/gorilla-glue.png
 * (picture alt tag): mortimer hawkins pain management
 * (published at): 20170630
 
