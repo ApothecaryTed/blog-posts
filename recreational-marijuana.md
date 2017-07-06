@@ -1,5 +1,5 @@
 * (title): Recreational Marijuana Starts this Summer!
-* (summary): Pain Management
+* (summary): Starting July 1, anyone over 21 can purchase legal marijuana from the Apothecary Shoppe!
 * (meta tags): recreational marijuana
 * (picture url): https://storage.googleapis.com/the-apothecary-shoppe-public-assets/blog-posts/recccc.jpg
 * (picture alt tag): recrational marijuana
