@@ -3,7 +3,7 @@
 * (meta tags): gorilla glue #1, gorilla glue #2, gorilla glue #3, gorilla glue #4, gg strains
 * (picture url): https://drive.google.com/drive/folders/0B5oCL51bmdd9cUdSNER2M3Jvb1E
 * (picture alt tag): get gorilla glue for pain management relief
-* (published at): 20170301
+* (published at): 20170629
 
 ---
 
