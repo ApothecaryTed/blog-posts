@@ -17,7 +17,7 @@ And it wouldn’t be a Marijuana advertisement without “weed-green” colored 
 the 14’ tall signs. To top it all off they have a full speaker system on all sides of the truck so that you can hear it
 coming by the music playing, as well as a disco light system in the cab to add that feel good party-type feel and
 even the Vegas classic – fuzzy white dice hanging in the front window.
-The sign directs you to their phone number, 1-833-GOT-HERB, a play on the “Got Milk” ads we all know
+The sign directs you to their phone number, **1-833-GOT-HERB**, a play on the “Got Milk” ads we all know
 and love. It says, “Call for a FREE ride” which is exactly what the shoppe wants – being that the tourists all over
 Vegas and Downtown were left high and dry by lawmakers who still won’t allow deliveries to someone who is
 not a Nevada Resident and a medical patient. This way every person from anywhere in the world can get a free
