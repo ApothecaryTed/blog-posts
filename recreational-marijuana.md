@@ -1,7 +1,7 @@
 * (title): Recreational Marijuana Starts this Summer!
 * (summary): Pain Management
 * (meta tags): recreational marijuana
-* (picture url): https://drive.google.com/drive/folders/0B5oCL51bmdd9cUdSNER2M3Jvb1E
+* (picture url): https://storage.googleapis.com/the-apothecary-shoppe-public-assets/blog-posts/recccc.jpg
 * (picture alt tag): recrational marijuana
 * (published at): 20170630
 
