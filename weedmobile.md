@@ -1,7 +1,7 @@
 * (title): The Apothecary Shoppe Maxes History with: "The Weedmobile"
 * (summary): Come check out the Apothecary 
 * (meta tags): las vegas marijuana sign truck
-* (picture url): https://storage.googleapis.com/the-apothecary-shoppe-public-assets/blog-posts/348H.jpg
+* (picture url): https://storage.googleapis.com/the-apothecary-shoppe-public-assets/blog-posts/SignTruck.jpg
 * (picture alt tag): check out the weedmobile!
 * (published at): 20170705
 
