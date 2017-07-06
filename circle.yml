@@ -1,0 +1,9 @@
+test: 
+  override:
+    - echo "great job team!"
+
+deployment:
+  production:
+    branch: master
+    commands:
+      - heroku run bundle exec rake github:import --app the-apothecary-shoppe-api
