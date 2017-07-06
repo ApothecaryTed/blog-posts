@@ -1,7 +1,7 @@
 * (title): Tyler wins again!
 * (summary): Pain Management
 * (meta tags): blunts cannabis community
-* (picture url): https://drive.google.com/drive/folders/0B5oCL51bmdd9cUdSNER2M3Jvb1E
+* (picture url): https://storage.googleapis.com/the-apothecary-shoppe-public-assets/blog-posts/tyler_ftw.jpg
 * (picture alt tag): tyler wins another blunt rolling championship
 * (published at): 20170625
 
