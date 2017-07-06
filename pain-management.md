@@ -13,7 +13,7 @@ such as anxiety, depression, sleep deprivation, etc.—but what is the best stra
 for pain? How do you decide which strain to choose? When it comes to medical
 marijuana for pain management, here are the top strains available.
 
-Medical Marijuana for Pain Management
+## Medical Marijuana for Pain Management
 
 If you suffer from pain of any kind, some consumptions methods work better than
 others. Some patients prefer smoking marijuana, while for others, the
@@ -29,7 +29,7 @@ effective.
 However you decide to take your medical marijuana or cannabinoids pain relief
 options, it’s important to choose the right strains.
 
-Lemon OG
+## Lemon OG
 
 This indica strain is a hybrid of Las Vegas Lemon Skunk and The OG #18. It has a
 bit of a skunky aroma but has a lot of underlying sweetness to it. Lemon OG is
@@ -54,7 +54,7 @@ extra stuff.
 ACDC is a descendant of Cannatonic, a strain bred for its brief, yet powerful
 anti-pain and anti-anxiety effects. Some other effects of ACDC include:
 
-Amazing relaxation Happiness Focus Energy boost Superman OG
+## Amazing relaxation Happiness Focus Energy boost Superman OG
 
 This kush indica is potent, pure, and powerful. Not only is it great for pain
 relief, but it’s also the ultimate strain for relaxation. However, because of
