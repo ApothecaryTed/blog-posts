@@ -1,7 +1,7 @@
 * (title): Mortimer Hawkins Strain Spotlight: Gorilla Glue
 * (summary): Gorilla Glue is one of the strongest Sativas in the jungle. See why the Gorilla Glue strain may be the perfect pain management solution.
 * (meta tags): gorilla glue #1, gorilla glue #2, gorilla glue #3, gorilla glue #4, gg strains
-* (picture url): https://drive.google.com/drive/folders/0B5oCL51bmdd9cUdSNER2M3Jvb1E
+* (picture url): https://storage.googleapis.com/the-apothecary-shoppe-public-assets/blog-posts/gorilla-glue.png
 * (picture alt tag): get gorilla glue for pain management relief
 * (published at): 20170629
 
