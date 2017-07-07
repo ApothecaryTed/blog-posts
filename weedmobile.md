@@ -7,7 +7,7 @@
 
 ---
 
-Las Vegas, NV, July 5, 2017: With recreational marijuana sales now in effect, one shop has a
+*Las Vegas, NV, July 5, 2017*: With recreational marijuana sales now in effect, one shop has a
 unique idea that since last Saturday has been putting them well apart from all the other dispensaries in
 Vegas, or Nevada, or the USA, or even the WORLD! The concept of having a truck & wrapping it in 10’
 tall signs is nothing new. However, The Apothecary Shoppe's truck takes it further, way further with
