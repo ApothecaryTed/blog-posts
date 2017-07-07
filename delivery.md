@@ -7,40 +7,38 @@
 
 ---
 
-We live in a wonderful world—virtually anything you want can be right at your
-door in a matter of minutes. We have Uber Eats, Amazon delivery drones, so of
-course, it won’t be too long until other industries start delivering more
-unconventional things. Lo and behold, Las Vegas marijuana delivery is available
-for medical marijuana patients. 
+We live in a wildly wonderful world!  Recreational use of Marijuana is legal in
+Nevada!!  Virtually anything you desire is at your door in a matter of minutes.  
+We have Uber Eats and Amazon delivery drones; no doubt we will soon see your 
+favorite flower, concentrates, edibles, and other goodies delivered straight to 
+your door with the press of a button. Marijuana delivery is currently available 
+in Las Vegasfor medical marijuana patients; recreational marijuana delievery is 
+sure to follow!
 
 Las Vegas Marijuana Delivery 
 
-Marijuana delivery hit select dispensaries in 2016 to the praise of many medical
-marijuana card owners. People no longer have to travel across the busy 515 to
-pick up their prescription. Instead, they can get it in minutes without having
-to leave their house.
+2016 saw Marijuana delivery hit select dispensaries to the acclaim of many 
+medical marijuana card owners. People no longer needed to travel across town 
+after work nor dodge taxis to pick up a prescription. Marijuana delivery takes 
+a burden off the consumer and allows us to reach more people with our products.
 
-Las Vegas marijuana delivery provides the people of our city a safe, legal, and
-convenient way for them to receive the medicine they need. These delivery
-services are regulated, so you don’t have to worry about legal permissibility.
-The benefits of delivery Many medical marijuana patients suffer from chronic
-pain and may have a harder time leaving the house, let alone driving to pick up
-their medicine.
+Marijuana delivery provides the people of Las Vegas a safe, legal, and convenient 
+way to receive medicine.  Some patients use medical marijuana to relieve chronic 
+pain or muscular conditions;  it is an undue burden to ask those patients to 
+travel when it may be difficult for them to leave the house or to arrange 
+transportation.
 
-Vegas weed delivery allows patients with pain management conditions, and
-patients with an array of other conditions, to stay in the comfort of their own
-home. This way, they can feel completely comfortable while awaiting their
-treatment. 
+Other patients use marijuana to relieve anxiety.  Some find it difficult to be 
+in a crowded setting - a busy dispensary, for instance.  Vegas weed delivery 
+allows us to provide medicine to patients in the comfort of their own home. 
+Anything we can do to provide patients a comfortable situation while awaiting 
+their treatment is green in our book!
 
-The perimeters of marijuana delivery 
+The Current Prerequisites of Marijuana Delivery in Las Vegas
 
-First and foremost, you must own an official medical marijuana card if you want
-to receive delivery.
-
-Las Vegas marijuana delivery must take place within Las Vegas city limits.
-Anything outside of that, most medical marijuana dispensaries will not deliver
-to you. It is illegal to cross state borders with your marijuana, even if
-medical marijuana is legal in both states.
+Valid Nevada medical marijuana recommendation
+Residential Home Address in Nevada
+Paperwork on file with the dispensary providing delivery
 
 Find a list of Las Vegas marijuana dispensaries that deliver in your area.
 
